@@ -39,3 +39,35 @@ Ellen Lupton
 Various authors  
 [http://allworth.com/allworth?catid=0&id=568](http://allworth.com/allworth?catid=0&id=568)
 
+* **"Permaculture: Regenerative - Not Merely Sustainable"**  
+Chris Rhodes  
+[http://www.resilience.org/stories/2015-11-02/permaculture-regenerative-not-merely-sustainable](http://www.resilience.org/stories/2015-11-02/permaculture-regenerative-not-merely-sustainable)
+
+* **"Design Story: The Decanter"**  
+Walter Landor and Associates  
+[https://vimeo.com/12861872](https://vimeo.com/12861872)
+
+* **"IDEO Shopping Cart Project"**  
+IDEO  
+[https://www.youtube.com/watch?v=taJOV-YCieI](https://www.youtube.com/watch?v=taJOV-YCieI)
+
+* **"The Little Book of Design Research Ethics"**  
+IDEO  
+[http://lbodre.ideo.com](http://lbodre.ideo.com/)
+
+* **"On Growth And Form"**  
+D'Arcy Wentworth Thompson  
+[https://archive.org/details/ongrowthform00thom](https://archive.org/details/ongrowthform00thom)
+
+* **"The Design of Everyday Things"**  
+Donald Norman  
+[https://en.wikipedia.org/wiki/The_Design_of_Everyday_Things](https://en.wikipedia.org/wiki/The_Design_of_Everyday_Things)
+
+* **"The Deep Lab Book"**  
+Deep Lab  
+[http://studioforcreativeinquiry.org/publications/deep-lab-book](http://studioforcreativeinquiry.org/publications/deep-lab-book)
+
+* **"Design Noir: The Secret Life of Electronic Objects"**  
+Anthony Dunne and Fiona Raby  
+(sadly, out of print)  
+[http://www.amazon.com/Design-Noir-Secret-Electronic-Objects/dp/3764365668](http://www.amazon.com/Design-Noir-Secret-Electronic-Objects/dp/3764365668)
