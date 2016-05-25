@@ -7,6 +7,10 @@
 Space & Times  
 [http://spaceandtim.es/projects/hosny](http://spaceandtim.es/projects/hosny)
 
+* **"Terrapattern" about section** 
+Golan Levin, et al
+[http://www.terrapattern.com/about](http://www.terrapattern.com/about)
+
 * **"39 Studies About Human Perception in 30 Minutes"**  
 Kennedy Elliott  
 [https://medium.com/@kennelliott/39-studies-about-human-perception-in-30-minutes-4728f9e31a73#.cs569oqas](https://medium.com/@kennelliott/39-studies-about-human-perception-in-30-minutes-4728f9e31a73#.cs569oqas)
