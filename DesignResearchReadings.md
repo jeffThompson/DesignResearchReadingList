@@ -75,3 +75,7 @@ Deep Lab
 Anthony Dunne and Fiona Raby  
 (sadly, out of print)  
 [http://www.amazon.com/Design-Noir-Secret-Electronic-Objects/dp/3764365668](http://www.amazon.com/Design-Noir-Secret-Electronic-Objects/dp/3764365668)
+
+* ** "The Propoganda of Pantone: Colour and Subcultural Sublimation"**  
+LOKI Design  
+[http://www.lokidesign.net/journal/2016/2/22/the-propaganda-of-pantone-colour-and-subcultural-sublimation](http://www.lokidesign.net/journal/2016/2/22/the-propaganda-of-pantone-colour-and-subcultural-sublimation)
