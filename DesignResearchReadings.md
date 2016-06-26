@@ -7,6 +7,10 @@
 Space & Times  
 [http://spaceandtim.es/projects/hosny](http://spaceandtim.es/projects/hosny)
 
+* **"Typography of Blade Runner"**  
+Typeset In The Future  
+[https://typesetinthefuture.com/2016/06/19/bladerunner](https://typesetinthefuture.com/2016/06/19/bladerunner)
+
 * **"Terrapattern" about section** 
 Golan Levin, et al
 [http://www.terrapattern.com/about](http://www.terrapattern.com/about)
